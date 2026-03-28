@@ -1,4 +1,4 @@
 Hey there 👋🏻
 
-I'm Abhimanue, a security student
+I'm Abhimanue Arun, a security student
 
